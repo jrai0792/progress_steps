@@ -14,7 +14,7 @@
 
 👤 **Jyoti Rai**
 
-- GitHub: [@JyotiRai](https://github.com/jrai0792
+- GitHub: [@JyotiRai](https://github.com/jrai0792)
 - Twitter: [@JyotiRai](https://twitter.com/jyotirai0792)
 - LinkedIn: [@JyotiRai](https://linkedin.com/in/rai-jyoti)
 
